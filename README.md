@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Python, Java.**
 
-- 📫 How to reach me: **Mail me at** **yoakshitaayo@gmail.com** or connect on [Linkedin](https://linkedin.com/in/https://www.linkedin.com/in/akshita-sharma-55b480210/) 
+- 📫 How to reach me: **Mail me at** **yoakshitaayo@gmail.com** or connect on [Linkedin](https://www.linkedin.com/in/akshita-sharma-55b480210/) 
   
 - 📄 Know about my experiences: [Resume](https://drive.google.com/file/d/1Bs1mLKpo4T6xsCArznRnph_5oKAgLrKY/view?usp=sharing)
 
